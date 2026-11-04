@@ -4,7 +4,7 @@
 
 ## Introduction
 
-Thank you for using **Easy Notes** ("the App"). Your privacy is important to us. This Privacy Policy explains how the App handles your information.
+Thank you for using **Paper Mint** ("the App"). Your privacy is important to us. This Privacy Policy explains how the App handles your information.
 
 ## Information We Collect
 
